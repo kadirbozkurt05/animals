@@ -1,5 +1,5 @@
 # Cats
-[https://lh3.googleusercontent.com/bip/APOwr83imKmDVwwH17HjPkKJfHoUBQRZwz6cYwKamqBoZETgNmr6nPB39UyCwUcva3FToPjAwxPhvp5-ju9vjGzcLEkvMwroHLonBqfsMTgT-pLn-ZQJMgQwh_fwg6ObTO2Pe7UynFRK4sur8RB_CYto=w250-h200-p]
+![Cat](https://lh3.googleusercontent.com/bip/APOwr83imKmDVwwH17HjPkKJfHoUBQRZwz6cYwKamqBoZETgNmr6nPB39UyCwUcva3FToPjAwxPhvp5-ju9vjGzcLEkvMwroHLonBqfsMTgT-pLn-ZQJMgQwh_fwg6ObTO2Pe7UynFRK4sur8RB_CYto=w250-h200-p)
 
 Cats are small, furry mammals that are often kept as pets. They are known for their independent nature, sharp claws, and retractable claws. Cats are also very good at climbing and jumping.
 
