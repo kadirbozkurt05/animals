@@ -1,5 +1,5 @@
 # Dogs
-![DOG](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c9/Golden_Retriever_female_sit.jpg/1200px-Golden_Retriever_female_sit.jpg)
+![DOG](https://lh3.googleusercontent.com/bip/APOwr819U2AtdpKZYjgjsFyMr5yn0cJY5-qu4pJe3ezVS4c14NRm_t2265Y8_jTNddF-WFc6UtvydhTnwpFqCdr86kfx26IWhHxGYFsvfw4dLGJBLf0BmnRZYwjmAw6rfNfptauQ_HtsXGrDPcDenajnaO8p4Xww6_GQ4_33MfNivB7qa4Pi8K8VO47bSQHKamctKOIz9boi9mRyn2BK-sAZ7UvwEPLKYRxB4Jm4ReIjNfbwxl31YgX2y4iyOZxf8g=w250-h200-p)
 
 Dogs are domesticated mammals, closely related to wolves, that have been selectively bred for millennia for various behaviors, working abilities, and physical characteristics. They are often kept as pets or working animals (such as shepherds, hunters, and retrievers), and are either classified as working dogs, herding dogs, hunting dogs, or companion dogs.
 
